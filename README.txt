@@ -1,2 +1,17 @@
-life is pain.
-That told me my grandfuther, after Second World War.
+sfwqrw
+r
+wqe
+rqwe
+r
+wqer
+wqe
+rw
+er
+wqe
+rwqe
+r
+dh
+gh
+j
+hjk
+i
